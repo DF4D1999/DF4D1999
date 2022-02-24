@@ -2,6 +2,6 @@ Johnson Lok
 
 Email : johnsonlok@foxmail.com
 
-Postgraduate of DLCV
+Postgraduate in reading of DLCV
 Shanghai University
 Baoshan Dist., Shanghai, China
