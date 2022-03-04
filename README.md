@@ -4,5 +4,6 @@ Email : johnsonlok@foxmail.com
 
 Postgraduate in reading of python/DL/CV
 
-Shanghai University
+School of Mechatronic Engineering and Automation, Shanghai University
+
 Baoshan Dist., Shanghai, China
